@@ -7,3 +7,5 @@ Trabajo en el hospital San Ignacio como Médica Anestesiologa.
 _Espero aprender mucho en este curso_
 
 **GRACIAS**
+
+_Sobre las mascotas; no soy muy amiga de estas, aunque mis hijos tienen una pecera muy hermosa con 4 peces monjitas_
